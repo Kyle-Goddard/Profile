@@ -7,4 +7,5 @@ I am glad you are here. I plan to talk about myself. A lot :)
 If you are reading this as a potential employer then I truly hope you find it an enjoyable experience. Let us chat when you have seen enough to convince yourself that I am your guy!
 
 Best Wishes
+
 Kyle Goddard
